@@ -1,0 +1,1 @@
+# auto-capcut-templates
